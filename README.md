@@ -15,4 +15,8 @@ https://freelance.habr.com/freelancers/DE1ACRUZ
 Windows и Red OS: https://docs.google.com/document/d/1AVVCD3OnLPIrdt3dDmFvrPqtUaEa0fAH29vRu3IZc8w/edit
 
 
-Конспект: https://docs.google.com/document/d/12oDa9P9No0iBye4tXIrrOGPRnWRbGrkMnAYMSUhi8dg/edit
+Конспект: https://docs.google.com/document/d/12oDa9P9No0iBye4tXIrrOGPRnWRbGrkMnAYMSUhi8dg/edit 
+
+
+Числовые методы - 
+https://drive.google.com/drive/folders/1JKo6w_gFh9oU7YGdTkhFPMwpYbBAN6wg
