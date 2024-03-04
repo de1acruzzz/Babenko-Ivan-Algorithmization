@@ -20,3 +20,6 @@ Windows и Red OS: https://docs.google.com/document/d/1AVVCD3OnLPIrdt3dDmFvrPqtU
 
 Числовые методы - 
 https://drive.google.com/drive/folders/1JKo6w_gFh9oU7YGdTkhFPMwpYbBAN6wg
+
+
+ССЫЛКА НА REPLIT : https://replit.com/@de1acruzzz
